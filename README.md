@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rigmod31
+- 👀 I’m interested in ...ethical hacking 
+- 🌱 I’m currently learning online on Alison
+- 💞️ I’m looking to collaborate on anything that will helpme gain knowledge
+- 📫 to contact me email at rigmod31@protonmail.com
